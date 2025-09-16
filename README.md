@@ -1,11 +1,11 @@
-# Masline | large-volume-electronic-parts-distributor| large volume electronic components supplier | professional electronic parts distributor| professional electronic components supplier | certified electronic parts distributor | certified electronic components supplier
+# Masline | large volume electronic parts distributor| large volume electronic components supplier | professional electronic parts distributor| professional electronic components supplier | certified electronic parts distributor | certified electronic components supplier
 
 
-Masline Electronics – A **large volume electronic parts distributor** and **certified electronic components supplier** trusted worldwide by OEMs, universities, R&amp;D labs, government projects, and contractors. Professional service, reliable sourcing, and bulk supply for every industry.
+Masline Electronics- A **large volume electronic parts distributor** and **certified electronic components supplier** trusted worldwide by OEMs, universities, R&amp;D labs, government projects, and contractors. Professional service, reliable sourcing, and bulk supply for every industry.
 
 Masline Electronics is a long-standing leader in the distribution of **large volume electronic parts** and **professional electronic components**. With decades of experience in the electronics industry, we have earned the trust of organizations that require scale, reliability, and certification in their supply chain.
 
-We are more than a distributor- we are a **certified electronic components supplier** dedicated to providing authentic products, dependable service, and long-term value to our customers.
+We are more than a distributor-we are a **certified electronic components supplier** dedicated to providing authentic products, dependable service, and long-term value to our customers.
 
 ---
 
@@ -50,7 +50,7 @@ Our expertise spans across a wide range of sectors:
 
 ## Our Commitment
 
-At Masline, we understand that sourcing components is not just about parts — it’s about confidence. Every order we fulfill carries our promise of:
+At Masline, we understand that sourcing components is not just about parts-it’s about confidence. Every order we fulfill carries our promise of:
 
 - **Dependable scale** – meeting both small and large volume demands  
 - **Professional partnership** – delivering solutions tailored to your project goals  
